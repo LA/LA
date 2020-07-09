@@ -1,4 +1,4 @@
-### 💬 Ask me about chasing the bag
+![image](https://thumbs.gfycat.com/AccomplishedFamousFeline-size_restricted.gif)
 
 <!--
 **LA/LA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
