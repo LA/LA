@@ -1,9 +1,1 @@
-
-
-<!--
-**LA/LA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
--->
-
-📫 How to reach me: [ayo.so/a](https://ayo.so/a) 
+![woot](https://c.tenor.com/q8U7ukj2gecAAAAC/all-might-scream.gif)
