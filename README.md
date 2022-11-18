@@ -2,4 +2,4 @@
 
 Building high-scale premium web services.
 
-$100k+ Budget? Reach out on Discord adar#0001
+Reach out on Discord adar#0001
